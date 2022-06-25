@@ -1,1 +1,5 @@
-[thornhill - where we go when we die](https://m.youtube.com/watch?v=Z3zUGj8LjrU)
+[thornhill - where we go when we die](https://m.youtube.com/watch?v=Z3zUGj8LjrU)     
+[thornhill - hollywood](https://m.youtube.com/watch?v=DN2BH-a20Ec)     
+[Zephyr - the precipice](https://m.youtube.com/watch?v=FfY-FE-8o6I)     
+[Circa Survive - Imposter Syndrome](https://m.youtube.com/watch?v=wtBYJUjbgIk)     
+[]()
