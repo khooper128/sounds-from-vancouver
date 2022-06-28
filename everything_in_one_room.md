@@ -9,10 +9,11 @@
 [Holy now - feel it all](https://m.youtube.com/watch?v=fD-PZM7vjAU)        
 [Take breath - if i see tomorrow](https://m.youtube.com/watch?v=t5ApKHUBgNw)        
 [k enagonio - the last space walk]()      
-[vanvouver sleep clinic - stakes]()
-[vancouver sleep clinic - collapse]()
-[Alabama shakes - gimmie all your love]()
-[of monsters and men - róróró]()
-[A lot like birds - for shelley]()
-[outline in color - a fracture, a fallout]()
-[ladispute - anxiety panorama]
+[vanvouver sleep clinic - stakes]()     
+[vancouver sleep clinic - collapse]()     
+[Alabama shakes - gimmie all your love]()     
+[of monsters and men - róróró]()     
+[A lot like birds - for shelley]()     
+[outline in color - a fracture, a fallout]()     
+[ladispute - anxiety panorama]()     
+
