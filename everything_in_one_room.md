@@ -15,5 +15,5 @@
 [of monsters and men - róróró]()     
 [A lot like birds - for shelley]()     
 [outline in color - a fracture, a fallout]()     
-[ladispute - anxiety panorama]()     
+[la dispute - anxiety panorama]()     
 
